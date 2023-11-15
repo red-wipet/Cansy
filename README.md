@@ -1,2 +1,2 @@
 # Cansy
-is it a true comeback ever?
+last malware by the artistic creator of viruses - mrsuperbuddy :(
